@@ -9,3 +9,6 @@ Meu nome é Brenda Garcia
 - ### você pode entrar comigo por aqui📫
 
 - 00001069960998SP@al.educacao.sp.gov.br
+
+
+https://media1.tenor.com/m/dlJSiLUJNmsAAAAC/math-calculate.gif
